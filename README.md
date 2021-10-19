@@ -1,3 +1,3 @@
 # anti-vaxxers
 
- - Certification of Vaccination Identification by Artificial Intelligence
+ - Certification of Vaccination Identification for Aliens Infestation
